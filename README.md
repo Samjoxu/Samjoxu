@@ -13,6 +13,7 @@
 ✧Jugar videojuegos✧
 
 ✧Estar con mis amigos✧
+
   
   HORARIO
   | Hora        | Lunes                  | Martes                           | Miercoles             | Jueves                | Vienes                           |
