@@ -1,10 +1,9 @@
 ### 💛Hola un gusto conocerte :]💛
 
-<!--
-**Samjoxu/Samjoxu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
 -✨Capacitacion: TICS✨
+
 -✨Estudiante de preparatoria✨
+
 -✨Esperando aprender cosas nuevas✨
 
 	✧Me gusta dibujar
