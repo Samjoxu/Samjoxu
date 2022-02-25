@@ -1,5 +1,7 @@
 ### 💛Hola un gusto conocerte :]💛
 
+![𝐄𝐓𝐄𝐑𝐍𝐀𝐋𝐋𝐘, keisuke baji_  - 𓏲˖˚ 𝓔𝚃𝙴𝚁𝙽𝙰𝙻𝙻𝚈 ˖❤️_🩹˚੭𖥻](https://user-images.githubusercontent.com/99761874/155635094-edd7f4ce-8bef-4cee-a208-3798f6a9b3d2.gif)
+
 -✨Capacitacion: TICS✨
 
 -✨Estudiante de preparatoria✨
