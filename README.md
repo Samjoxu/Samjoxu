@@ -8,9 +8,11 @@
 
 -✨Esperando aprender cosas nuevas✨
 
-	✧Me gusta dibujar
- 	✧Jugar videojuegos
- 	✧Estar con mis amigos
+✧Me gusta dibujar✧
+
+✧Jugar videojuegos✧
+
+✧Estar con mis amigos✧
   
   HORARIO
   | Hora        | Lunes                  | Martes                           | Miercoles             | Jueves                | Vienes                           |
